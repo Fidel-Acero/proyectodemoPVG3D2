@@ -1,2 +1,0 @@
-# proyectodemoPVG3D2
- 
